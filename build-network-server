@@ -1,0 +1,31 @@
+How to get intranet server found let start app on internet
+
+Get app system windows 7 rule shell command promt use grounding preserve codes when not afraid of faulted issues.
+
+Begin own codes and rules whit a moon after dark whetness school.
+Most begin in world task to get him other os let go scripting well templates form of server location and storage buffering. WHAT ELSE
+
+win 7 shell :
+
+set product.iss “serverport” give.else _false fountain.storage /dll..data
+set shell.common -calls import.desktop –server give.task _buffer.ini
+set root/.storage common retry.false _install.os .6 /incompund.dns
+set
+
+Tails os terminal : 
+
+sudo apt get application control shell.win7 //locate.dll-s -imported.file /com2
+
+set
+
+set ambarked.klone –distrakt.enemie }execute.dropped.puffer -clips
+set wheale.deepweb –tails.confort -usa.org /”sitename” ---sdl.client
+set roof poped.puf -extract<script>?ajax.proper /”sitename”
+set
+set op.setting –true search.engine google.com /top _else.top –rope.task
+set dll...DATA _else.if ;true comfort.dns _else. ip.id -local/DNS
+set
+top
+
+If more to setting else.if -port /scan attend words if browser on your hacking system granted whey lookin forge <script>..else.dark -center.top
+In a lied desktop phasing new server of world you inspect wory.
